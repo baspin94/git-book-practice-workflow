@@ -1,8 +1,11 @@
 # It's art! A statement on modern society, 'Oh Ain't Modern Society Awful?'!
 
-Annihilate? No. No violence. I won't stand for it. Wibbly wobbly timey wimey stuff. Not now, not ever, do you understand me?! I'm the Doctor, the Oncoming Storm - and you basically meant beat them in a football match, didn't you? They're not aliens, they're Earth…liens!
+Annihilate? No. No violence. I won't stand for it. OI, WATCH IT SPACEMAN! Wibbly wobbly timey wimey stuff. Not now, not ever, do you understand me?! I'm the Doctor, the Oncoming Storm - and you basically meant beat them in a football match, didn't you? They're not aliens, they're Earth…liens!
 
-I am the Doctor, and you are the Daleks! Harvey Wallbanger! You hit me with a cricket bat. It's art! A statement on modern society, 'Oh Ain't Modern Society Awful? '! __Heh-haa!__ *Super squeaky bum time!* No… It's a thing; it's like a plan, but with more greatness.
+I am the Doctor, and you are the Daleks! Harvey Wallbanger! You hit me with a cricket bat. Donna Noble has left the library. Donna Noble has been saved. It's art! A statement on modern society, 'Oh Ain't Modern Society Awful? '! __Heh-haa!__ *Super squeaky bum time!* No… It's a thing; it's like a plan, but with more greatness.
+Annihilate? No. No violence. I won't stand for it. Not now, not ever, do you understand me?! I'm the Doctor, the Oncoming Storm - and you basically meant beat them in a football match, didn't you? They're not aliens, they're Earth…liens!
+
+I am the Doctor, and you are the Daleks! You hit me with a cricket bat.  It's art! A statement on modern society, 'Oh Ain't Modern Society Awful? '! __Heh-haa!__ *Super squeaky bum time!* No… It's a thing; it's like a plan, but with more greatness.
 
 ## The way I see it, every life is a pile of good things and bad things.…hey.…the good things don't always soften the bad things; but vice-versa the bad things don't necessarily spoil the good things and make them unimportant.
 
